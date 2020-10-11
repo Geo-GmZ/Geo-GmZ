@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything.
 - 📫 How to reach me: ... 
 - 😄 Pronouns: ...He/His
-- Fun fact: ... I know how to greet in Vulcan.
+- Fun fact: ... I know how to greet in Vulcan :v: .
